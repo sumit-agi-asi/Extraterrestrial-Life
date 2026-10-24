@@ -22,3 +22,7 @@ This is regarding extraterrestrial life, it's location.
 - Advanced civilizations are compassionate and powerful intellectually. Technologically far advanced civilizations than human today are 80-90 percent. At least 30 percent can navigate the cosmos.
 
  **&copy; Technocraft Physics 2026. All Rights Reserved.**
+
+for 
+
+**NASA.GOV**
